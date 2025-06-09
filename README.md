@@ -81,7 +81,7 @@ Let's keep our inboxes spam-free and our communications secure.
 
 ## Author
 
-- [Pravin Chougale](https://https://www.linkedin.com/in/pravinchougale/)
+- [Pravin Chougale](https://www.linkedin.com/in/pravinchougale/)
 
 ---
 
